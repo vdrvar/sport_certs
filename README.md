@@ -18,6 +18,6 @@ Feel free to explore the folders to view my certificates!
 
 If you have any questions or just want to connect with me, feel free to reach out:
 
-- Email: [your.email@example.com](mailto:your.email@example.com)
+- Email: [vjekoslav.drvar@gmail.com](mailto:vjekoslav.drvar@gmail.com)
 
 Let's keep running and chasing our goals together! 🏅👟
