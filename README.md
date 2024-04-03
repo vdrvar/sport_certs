@@ -6,7 +6,7 @@ In this repository, I proudly showcase my certificates and achievements in marat
 
 ## About Me
 
-I'm passionate about running and have participated in various marathons and half marathons, pushing my limits and achieving personal milestones.
+I'm passionate about running and have participated in several half marathons and a marathon, pushing my limits and achieving personal milestones.
 
 ## Repository Structure
 
