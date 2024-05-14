@@ -2,7 +2,7 @@
 
 Welcome to my Running Certificates Repository! 🏃‍♂️🏆
 
-In this repository, I proudly showcase my certificates and achievements in marathons and half marathons.
+In this repository, you can find my certificates and achievements in marathons and half marathons.
 
 ## About Me
 
